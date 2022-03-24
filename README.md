@@ -1,1 +1,1 @@
-- 👋 Hi, We are Sun Mountain IT solution
+- 👋 Hi, I am an web 2.0 & 3.0 developer.
