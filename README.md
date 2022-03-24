@@ -1,1 +1,1 @@
-- 👋 Hi, I am an web 2.0 & 3.0 developer.
+- 👋 Hi, I am a web 2.0 & 3.0 developer.
